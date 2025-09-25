@@ -1,1 +1,0 @@
-# Ipasa-sa-laptop-ito
